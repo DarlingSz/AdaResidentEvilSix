@@ -1,8 +1,8 @@
 # AdaResidentEvilSix
 
-Tema Para BetterDiscord!
+Theme for BetterDiscord!
 
-User Com Sabedoria.
+puckzxz remaster theme ada resident evil 6
 
 
 
